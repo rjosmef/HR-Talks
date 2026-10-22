@@ -1,0 +1,3 @@
+# PRESENTERS SLIDES
+
+- OCTOBER SLIDES: [VIEW SLIDES](https://www.canva.com/design/DAF2NFybHv8/-b5rnEUsbDKY-NiwNfZaww/view?utm_content=DAF2NFybHv8&utm_campaign=designshare&utm_medium=link&utm_source=viewer)
